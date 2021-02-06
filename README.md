@@ -6,4 +6,4 @@ https://kbjhub.net
 
 韩国BJ最新地址
 
-https：//韩文BJ.cc
+https：//KoreanBJ.cc
